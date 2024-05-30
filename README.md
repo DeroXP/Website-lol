@@ -1,2 +1,1 @@
-# Website-lol
-just a webpage i made in a hour or lower
+### If you want the code its yours i don't mind.
